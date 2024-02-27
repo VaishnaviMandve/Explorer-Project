@@ -1,1 +1,1 @@
-Explore th explorer.com
+Explore the explorer.com
